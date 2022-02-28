@@ -1,5 +1,5 @@
-### Hi there 👋 
-Software/Game🎮 developer who is always learning! \
+### Hi there. My name is Artis Smirnovs 👋 
+I am Software/Game🎮 developer who is always learning and ready for challenges! \
 Email: artis.smirnovs26@gmail.com | LinkedIn: https://www.linkedin.com/in/artis-smirnovs/ 
 <!--
 **Artis26/Artis26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
