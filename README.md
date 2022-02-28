@@ -1,4 +1,6 @@
-### Hi there. My name is Artis Smirnovs 👋 
+### Hi there. 👋  
+
+My name is Artis Smirnovs 
 
 I am Software/Game🎮 developer who is always learning and ready for challenges! 
 
