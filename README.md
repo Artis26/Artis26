@@ -2,7 +2,7 @@
 
 My name is **Artis Smirnovs** 
 
-I am Software/Game🎮 developer who is always learning and ready for challenges! 
+I am Software developer who is always learning and ready for challenges! 
 
 **Email:** artis.smirnovs26@gmail.com | **LinkedIn:** https://www.linkedin.com/in/artis-smirnovs/ 
 <!--
